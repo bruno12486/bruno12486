@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @bruno12486
-- 👀 I’m interested in jogos
-- 🌱 I’m currently learning esino medio
-- 💞️ I’m looking to collaborate on sim
-- 📫 How to reach me segindo o gps
+- 👀 I’m interested in:jogos
+- 🌱 I’m currently learning:esino medio
+- 💞️ I’m looking to collaborate on:sim
+- 📫 How to reach me:segindo o gps
 - 😄 Pronouns: ele/dele
 - ⚡ Fun fact:eu respiro
 
